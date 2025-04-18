@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @PercyJhay001
-- 👀 I’m interested in social Media management and Cybersecurity
+- 👋 Hi, I am Emediong John also known as Percy John in the web 3 space.
+- 👀 I am a skilled Social Media handler, KOL and Community Lead.
 - 🌱 I’m currently learning Cybersecurity
 - 💞️ I’m looking to contribute innovatively to the cybersecurity space
 - 📫 You can reach me on Telegram @Norman225, Twitter @CJhonixx
